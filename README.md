@@ -25,5 +25,7 @@ My name is Ashish - I'm the Founder of Teenage Coder, and on the side, I make Yo
 Other Useful Links:
 
 LinkedIn - https://linkedin.com/in/ashish-jangra
+
 Instagram - https://instagram.com/ashish_zangra
+
 Facebook - https://facebook.com/ashishzangra
